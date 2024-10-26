@@ -1,4 +1,4 @@
 Roses are red
 Sky is blue
-You are pretty and smart
+You are pretty and but not that smart
 you are beautiful
