@@ -1,3 +1,3 @@
 Roses are red
 Sky is blue
-You are pretty 
+You are pretty and smart
